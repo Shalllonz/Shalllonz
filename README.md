@@ -1,1 +1,1 @@
-i dont know how to code im just bored
+[i dont know how to code im just bored](https://camo.githubusercontent.com/2bfcaedf618ad45fb99c2988571abca76ab20656d42015a1e634a9fca40376ea/68747470733a2f2f7661786572736b692e78797a2f6769746875622f546f704769662e676966)
