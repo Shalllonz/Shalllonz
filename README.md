@@ -8,4 +8,5 @@ Being 100% honest i don't know how to code, but im just trying learn it and have
 I play games, sometimes mess around with modding, and that's really all.
 ![jjtvSgRf](https://user-images.githubusercontent.com/118684017/202919900-25c9a544-082a-4b50-908e-b9f71f64708d.gif)
 ![Euq6xLIu](https://user-images.githubusercontent.com/118684017/202919601-11acff88-9612-4534-8d0a-c3e1755e9d74.gif)
-
+Well this is pretty empty, and probably will be for a loooong time.
+Maybe one day ill have use for this one.
